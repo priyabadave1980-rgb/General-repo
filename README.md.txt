@@ -1,1 +1,1 @@
-Everyone show should follow the rules.
+Everyone should follow the rules.
